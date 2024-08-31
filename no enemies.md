@@ -1,99 +1,35 @@
-"A person with no enemies is one who has mastered the art of understanding."
+Sleepy <3
 
-"To have no enemies is to live a life of peace and harmony."
+Rimuru <3
 
-"The one who has no enemies is a friend to all."
+Mhx <3
 
-"Those with no enemies know the value of empathy."
+Killa <3
 
-"A life without enemies is a life full of love."
+Potato <3
 
-"No enemies mean no grudges."
+Bulve <3
 
-"To live without enemies is to live without hate."
+Redox <3
 
-"The secret to having no enemies is kindness."
+Zem <3
 
-"A person with no enemies is a beacon of peace."
+Solar <3
 
-"No enemies, no conflicts, just pure harmony."
+Svetho <3
 
-"To have no enemies, be understanding."
+Zer <3
 
-"Living without enemies is living in peace."
+Sluxz <3
 
-"A heart with no enemies is a heart full of love."
+Secret_King <3
 
-"Those who have no enemies have mastered forgiveness."
+Arabian <3
 
-"A life without enemies is a life with fewer worries."
+Siyoshi <3
 
-"No enemies mean more friends."
+Inxpectz <3
 
-"A person with no enemies has a peaceful soul."
+Vgn <3
 
-"To have no enemies, one must have an open heart."
-
-"No enemies mean no battles, just peace."
-
-"A life without enemies is a gift to oneself."
-
-"To have no enemies is to live without fear."
-
-"A soul without enemies is a soul at peace."
-
-"No enemies mean no negativity."
-
-"To have no enemies, spread love."
-
-"Living without enemies is living in harmony with the world."
-
-"A person with no enemies is a true diplomat."
-
-"No enemies mean a life full of joy."
-
-"To have no enemies, be a bridge, not a wall."
-
-"A life without enemies is a life full of blessings."
-
-"No enemies mean no stress."
-
-"To have no enemies is to have a clear conscience."
-
-"A person with no enemies lives in peace with themselves."
-
-"No enemies, no hate, just love."
-
-"A life without enemies is a life of tranquility."
-
-"To have no enemies is to embrace compassion."
-
-"A person with no enemies knows the power of love."
-
-"No enemies mean a heart free from grudges."
-
-"To have no enemies is to live a life of understanding."
-
-"A life without enemies is a life of simplicity."
-
-"No enemies mean no war within."
-
-"To have no enemies is to live in harmony with oneself."
-
-"A person with no enemies is a person who loves deeply."
-
-"No enemies, only peace."
-
-"A life without enemies is a life with more smiles."
-
-"To have no enemies, live with integrity."
-
-"A person with no enemies lives in the light."
-
-"No enemies mean more opportunities for love."
-
-"To have no enemies is to spread positivity."
-
-"A life without enemies is a life of joy."
-
-"No enemies mean no barriers to happiness."
+Hyper <3
