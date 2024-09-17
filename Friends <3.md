@@ -33,8 +33,6 @@ Inxpectz <3
 
 Vgn <3
 
-Hyper <3
-
 Hoto <3
 
 Adam <3
